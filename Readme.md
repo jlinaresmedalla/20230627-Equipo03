@@ -1,1 +1,6 @@
-Juan ALvaro Linares Medalla - Cinthia Yazmin Gonzalez Diaz
+**Cinthia Yazmín González Díaz**
+
+### México 
+
+Mexico :hearts:
+
