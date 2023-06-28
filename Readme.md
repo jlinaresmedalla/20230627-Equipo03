@@ -1,1 +1,6 @@
-Juan ALvaro Linares Medalla
+**Juan ALvaro Linares Medalla**
+
+### Perú
+
+Perú :peru:
+
